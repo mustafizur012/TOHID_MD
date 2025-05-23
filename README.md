@@ -1,9 +1,9 @@
 
-#### MULTI DEVICE WHATSAPP BOT TOHID_Md | STILL MANY HIDDEN COMMANDS
+#### MULTI DEVICE WHATSAPP BOT Mustafizur_Md | STILL MANY HIDDEN COMMANDS
 
 <p align="center">  
   <a href="https://youtube.com/@tohidkhan_6332">
-    <img alt="TOHID" src="https://i.ibb.co/4ZSYvPTq/lordali.jpg">
+    <img alt="TOHID" src="https://i.ibb.co/20250414_231502~2.jpg">
   </a>
 </p>
 <p align="center">
